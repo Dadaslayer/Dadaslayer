@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dadaslayer
 - 👀 I’m interested in programing 
 - 🌱 I’m currently learning how to program 
-- 💞️ I’m looking to collaborate on to program
+- 💞️ I’m looking to collaborate programs
 - 📫 How to reach me programs
 - 😄 Pronouns: pro/gram
 - ⚡ Fun fact: i like programs
